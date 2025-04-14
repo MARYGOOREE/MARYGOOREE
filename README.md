@@ -11,6 +11,7 @@
  ![image](https://64.media.tumblr.com/588c485a783611e27fc1874f90f43715/2a2a38d23c8923e1-44/s250x400/aca468d690e9cd229165f09f59bf646fc0f57b8c.gifv)
  ![image](https://blinkies.cafe/b/blinkiesCafe-qL.gif)
  ![image](https://64.media.tumblr.com/d1a6ffe0db07bcc82cb29a3ac48926de/2a2a38d23c8923e1-60/s250x400/ff5d6f15c3df7fd7105b11aba2c2a7e45ab222b8.gifv)
+ ![image](https://blinkies.cafe/b/blinkiesCafe-Fg.gif)
  
  <p align="center">
  "MARY GOORE."
