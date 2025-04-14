@@ -1,7 +1,7 @@
 ![](https://komarev.com/ghpvc/?username=MARYGOOREE&color=red)
 
  <p align="center">
-   <img width="900" height="250" src="https://wallpaperaccess.com/full/2922662.jpg?ex=67f0492a&is=67eef7aa&hm=a71933f95904e4471cc0217cff9bb197b33f2ea4c9c118092e174d0c1f4862aa&=&format=webp&quality=lossless&width=756&height=756">
+   <img width="850" height="200" src="https://wallpaperaccess.com/full/2922662.jpg?ex=67f0492a&is=67eef7aa&hm=a71933f95904e4471cc0217cff9bb197b33f2ea4c9c118092e174d0c1f4862aa&=&format=webp&quality=lossless&width=756&height=756">
  <p align="center">
  "WELCOME TO HELL."
 
