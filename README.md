@@ -14,7 +14,7 @@
  ![image](https://blinkies.cafe/b/blinkiesCafe-Fg.gif)
  
  <p align="center">
- "MARY GOORE."
+⛧° ⋆♱ "MARY GOORE." ⋆ °⛧
 
   <p align="center">
   HE/HIM ♱ 15 ♱ OMNISEXUAL
