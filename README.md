@@ -18,6 +18,9 @@
 
   <p align="center">
   HE/HIM ♱ 15 ♱ OMNISEXUAL
+   
+  <p align="center">
+  TAKEN ☠︎︎ HTML CODER
 
 
   <p align="center">
