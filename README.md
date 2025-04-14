@@ -11,7 +11,7 @@
  "MARY GOORE."
 
   <p align="center">
-  HE/HIM ♱
+  HE/HIM ♱ 15 ♱ OMNISEXUAL
 
 
   <p align="center">
