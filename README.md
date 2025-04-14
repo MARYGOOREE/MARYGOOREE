@@ -8,6 +8,7 @@
  ![image](https://64.media.tumblr.com/92bb16ec712d28257be94ee4ddfae141/66f8bee48421ca35-22/s250x400/25ecd1602079153c5b0d838b6cf353cc5338b4ac.gifv)
  ![image](https://blinkies.cafe/b/blinkiesCafe-jy.gif)
  ![image](https://64.media.tumblr.com/17f21d9b27a28decb5d8c4c5de6cffb6/2a2a38d23c8923e1-49/s250x400/ab8b2e75c113c2e00e0e5bb6da8379b54fc688a1.gifv)
+ ![image](https://64.media.tumblr.com/588c485a783611e27fc1874f90f43715/2a2a38d23c8923e1-44/s250x400/aca468d690e9cd229165f09f59bf646fc0f57b8c.gifv)
  
  <p align="center">
  "MARY GOORE."
