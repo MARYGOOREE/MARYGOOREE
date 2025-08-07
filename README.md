@@ -25,7 +25,7 @@ MY INFO!
   HE/HIM ♱ 15 ♱ OMNISEXUAL
    
   <p align="center">
-  SINGLE ☠︎︎ HTML CODER
+  TAKEN ☠︎︎ HTML CODER
    
   <p align="center">
   INFP ࣪ ִֶָ☾. Enneagram type 9
